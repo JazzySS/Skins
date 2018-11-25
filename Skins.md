@@ -1,22 +1,21 @@
 # All of my skins
 
 Click on the skin name to download.
-# Некоторые мои скины могут быть приватными или просто не залиты сюда, так что извиняйте, если не найдете тут нужный вам
 
-# [+1wwsou2netnesonya3](https://drive.google.com/open?id=1bsNRFd2a7Uapk_wm-Ne23AIO5A9v4I8l)
-![](https://osu.ppy.sh/ss/12207147)
+# [#azer8dawn](https://drive.google.com/open?id=1SogTVCdVwTveYKDc6sYmMxZS9AsbezM-)
+![](https://media.discordapp.net/attachments/510992106748379136/516370045539188759/screenshot2584.jpg?width=849&height=478)
 
-# [- azr8 old grey -](https://www.dropbox.com/s/v32pu409tcfwm1p/-%20azr8%20old%20grey%20-.osk?dl=0)
-![](https://osu.ppy.sh/ss/12165830)
+# [Rafis 2017-08-10](https://drive.google.com/open?id=1QBHOzl8_Qdq3iso8mL78oZHNy1ddyD0m)
+![](https://media.discordapp.net/attachments/510992106748379136/516372580173611019/screenshot2598.jpg?width=849&height=478)
 
-# [elohere](https://drive.google.com/open?id=1G6D_Di0it0PNjXJDZ6K21ut7_1nyV7H-)
-![](https://osu.ppy.sh/ss/12207186)
+# [-! # !azer9emilia](https://drive.google.com/open?id=1sMGYISCq__l5tgEwvuXlY260h7FUwzVh)
+![](https://media.discordapp.net/attachments/510992106748379136/516373581127483433/screenshot2603.jpg?width=849&height=478)
 
-# [mathi-ensalada](https://drive.google.com/open?id=1Db_BWr80sfnjFkObqZJSoAlkdHGntG0g)
-![](https://osu.ppy.sh/ss/12207221)
+#[!-Lines-!](https://drive.google.com/open?id=1izYCwEN44N-3nw_XBV5j0WYpHR3ujqVJ)
+![](https://osu.ppy.sh/ss/12208044)
 
-# [-+ Seoul v9 Personal Skin V3](https://drive.google.com/open?id=1ZPbhH9RdchAn1L926fuIWa0ygsuYHIQ0) 
-![](https://osu.ppy.sh/ss/12207233)
+#[--+zerotwo+mpikazo+cloz1k](https://drive.google.com/open?id=1fO5yBTdGKQksPdq2F9xYiW6X_xOiw3bX)
+![](https://osu.ppy.sh/ss/12208064)
 
-# [Seoul++ 16-9](https://drive.google.com/open?id=1ZPbhH9RdchAn1L926fuIWa0ygsuYHIQ0) 
-![](https://osu.ppy.sh/ss/12207248)
+#[aprx](https://drive.google.com/open?id=1eZNZqUCNSwGD9BGnOKkftHbVkmgEcwBN)
+![](https://media.discordapp.net/attachments/510992106748379136/516376058631553025/screenshot2611.jpg?width=849&height=478)
