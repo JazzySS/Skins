@@ -2,7 +2,7 @@
 
 Click on the skin name to download.
 
-# [-Hey DT]https://drive.google.com/open?id=1Zqf0IaRAFSNfX_aYB3l1fxOlu4Q5Prry)
+# [-Hey DT](https://drive.google.com/open?id=1Zqf0IaRAFSNfX_aYB3l1fxOlu4Q5Prry)
 ![](https://osu.ppy.sh/ss/12847033)
 
 # [Jakads](https://drive.google.com/open?id=1JbmkujsKDujIbCUoC89XxDGk9MsiEvlD)
