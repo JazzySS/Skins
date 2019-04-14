@@ -2,14 +2,14 @@
 
 Click on the skin name to download.
 
+# [Mathi+Cookiezi](https://drive.google.com/open?id=1MdyeYkuCrGP3wCPKw9JRLuZZ12No2eEa)
+![](https://osu.ppy.sh/ss/13035426)
+
+# [Seoul+](https://drive.google.com/open?id=1zkPg5WxudVhWMhS_DLRxSLDnILrP8CxA)
+![](https://osu.ppy.sh/ss/13035409)
+
 # [-Hey DT](https://drive.google.com/open?id=1Zqf0IaRAFSNfX_aYB3l1fxOlu4Q5Prry)
 ![](https://osu.ppy.sh/ss/12847033)
-
-# [Jakads](https://drive.google.com/open?id=1JbmkujsKDujIbCUoC89XxDGk9MsiEvlD)
-![](https://osu.ppy.sh/ss/12847030)
-
-# [MonkoYaongV2](https://drive.google.com/open?id=1Yeq1pwfQvSCqDTfZP2PvB4YhSafxenUN)
-![](https://camo.githubusercontent.com/c68dfae8dbb382e3bbb50c9f2ab29b7da7cc2dde/68747470733a2f2f6f73752e7070792e73682f73732f3132373232383535)
 
 # [Angelsim 2017-08-12](https://drive.google.com/open?id=1BrQO3RH_Wwjm_xGkX-_0eg-nbE6n81EZ)
 ![](https://media.discordapp.net/attachments/510992106748379136/552911581520855046/screenshot3071.jpg?width=854&height=481)
