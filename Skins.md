@@ -2,6 +2,8 @@
 
 Click on the skin name to download.
 
+#[- ddddd ryuk -](http://puu.sh/DD1aK/53a5aa7cc4.osk)![](https://media.discordapp.net/attachments/510992106748379136/600249067737579550/68747470733a2f2f6f73752e7070792e73682f73732f3133333333323332.png?width=792&height=495)
+
 # [!owoTunaSpareEdit](https://drive.google.com/open?id=1GgO_rE4g6vMozQE8uvR0csmCjK25X6PB)
 ![](https://media.discordapp.net/attachments/510992106748379136/590388644574003217/unknown.png?width=851&height=480)
 
