@@ -2,6 +2,9 @@
 
 Click on the skin name to download.
 
+# [Seoul v9 Personal Skin Kirby](https://drive.google.com/open?id=1ZH8Vd4EwN9nkJ_12HuWutL0v8gbDj3uf)
+![](https://imgur.com/H8sC2yY)
+
 # [- ddddd ryuk -](http://puu.sh/DD1aK/53a5aa7cc4.osk)
 ![](https://media.discordapp.net/attachments/510992106748379136/600249067737579550/68747470733a2f2f6f73752e7070792e73682f73732f3133333333323332.png?width=792&height=495)
 
@@ -25,3 +28,4 @@ Click on the skin name to download.
 
 # [!-Lines-!](https://drive.google.com/open?id=1izYCwEN44N-3nw_XBV5j0WYpHR3ujqVJ)
 ![](https://osu.ppy.sh/ss/12208044)
+
