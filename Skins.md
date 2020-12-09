@@ -3,7 +3,7 @@
 Click on the skin name to download.
 
 # [Ryuk and mrekk DT skin](https://drive.google.com/file/d/1UOW7NN7TWV8CxHpp_KKrKVHyq3WDJ0HN/view?usp=sharing)
-![](https://imgur.com/a/ugtS5fa) <-- Current using for dt
+![](https://imgur.com/a/ugtS5fa.png) current using for dt 09/12/2020 
 
 # [Seoul v9 Personal Skin Kirby](https://drive.google.com/open?id=1ZH8Vd4EwN9nkJ_12HuWutL0v8gbDj3uf)
 ![](https://i.imgur.com/H8sC2yY.png)
