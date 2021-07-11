@@ -3,7 +3,7 @@
 Click on the skin name to download.
 
 # [!Mathi - Pink cursor](https://drive.google.com/file/d/1OfCWaOPdfc6ZlvR8k85hPSa3kw2jyBx_/view?usp=sharing)
-![](https://i.imgur.com/PUpzIVn.png)
+![](https://ibb.co/4RTsP5Z)
 
 # [Ryuk and mrekk DT skin](https://drive.google.com/file/d/1UOW7NN7TWV8CxHpp_KKrKVHyq3WDJ0HN/view?usp=sharing)
 ![](https://i.imgur.com/RSjUQmY.png) last update 11/07/2021
