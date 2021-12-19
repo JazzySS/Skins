@@ -6,19 +6,19 @@ Click on the skin name to download.
 ![](https://i.imgur.com/l6IHvGi.jpeg)
 
 # [Arknights K4rimw DT](https://drive.google.com/file/d/1MlcRu8AnEZH4jMx1h2cq_zpco0NwizwM/view?usp=sharing)
-![](https://imgur.com/gallery/yWGJSGz)
+![](https://i.imgur.com/neUUXY9.jpeg)
 
 # [Exarch HD](https://drive.google.com/file/d/1SQluXkITmAuyA8ocnl58_x94ql6EREra/view?usp=sharing)
-![](https://imgur.com/gallery/Ydsk2RU)
+![](https://i.imgur.com/xVTC66a.jpeg)
 
 # [MonkoEdit Rektygon](https://drive.google.com/file/d/15ZbLaz2L78g5HiFfx1lq_2Pzbp_CkHha/view?usp=sharing)
-![](https://i.imgur.com/sahoVko.jpeg)
+![](https://i.imgur.com/pewXA1Y.jpeg)
 
 # [The Boop](https://drive.google.com/file/d/1D7yMcSafqcfDTDWiTFLoe5sRCwMm3bBT/view?usp=sharing)
-![](https://imgur.com/gallery/X0F39Aj)
+![](https://i.imgur.com/0FmmLLq.jpeg)
 
 # [Aristia Edit](https://drive.google.com/file/d/1L7l3lPDtlvLbHa798_W10_qqx5KXAY0i/view?usp=sharing)
-![](https://imgur.com/gallery/hTKnSbQ)
+![](https://i.imgur.com/JkXThx4.jpeg)
 
 # [!Mathi - Pink cursor](https://drive.google.com/file/d/1OfCWaOPdfc6ZlvR8k85hPSa3kw2jyBx_/view?usp=sharing)
 ![](https://i.imgur.com/dC0JVE7.jpeg)
