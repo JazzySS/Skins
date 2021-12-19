@@ -12,7 +12,7 @@ Click on the skin name to download.
 ![](https://imgur.com/gallery/Ydsk2RU)
 
 # [MonkoEdit Rektygon](https://drive.google.com/file/d/15ZbLaz2L78g5HiFfx1lq_2Pzbp_CkHha/view?usp=sharing)
-![](https://imgur.com/gallery/sahoVko.png)
+![](https://i.imgur.com/gallery/sahoVko.png)
 
 # [The Boop](https://drive.google.com/file/d/1D7yMcSafqcfDTDWiTFLoe5sRCwMm3bBT/view?usp=sharing)
 ![](https://imgur.com/gallery/X0F39Aj)
