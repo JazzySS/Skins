@@ -20,10 +20,10 @@ Click on the skin name to download.
 # [Aristia Edit](https://drive.google.com/file/d/1L7l3lPDtlvLbHa798_W10_qqx5KXAY0i/view?usp=sharing)
 ![](https://i.imgur.com/JkXThx4.jpeg)
 
-# [!Mathi - Pink cursor](https://drive.google.com/file/d/1OfCWaOPdfc6ZlvR8k85hPSa3kw2jyBx_/view?usp=sharing)
+# [Mathi - Pink cursor](https://drive.google.com/file/d/1OfCWaOPdfc6ZlvR8k85hPSa3kw2jyBx_/view?usp=sharing)
 ![](https://i.imgur.com/dC0JVE7.jpeg)
 
-# [Ryuk and mrekk DT skin](https://drive.google.com/file/d/1UOW7NN7TWV8CxHpp_KKrKVHyq3WDJ0HN/view?usp=sharing)
+# [Ryuk and mrekk DT](https://drive.google.com/file/d/1UOW7NN7TWV8CxHpp_KKrKVHyq3WDJ0HN/view?usp=sharing)
 ![](https://i.imgur.com/RSjUQmY.png)
 
 # [Seoul v9 Personal Skin Kirby](https://drive.google.com/open?id=1ZH8Vd4EwN9nkJ_12HuWutL0v8gbDj3uf)
