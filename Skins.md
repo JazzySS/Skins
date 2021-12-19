@@ -2,8 +2,8 @@
 
 Click on the skin name to download.
 
-# [Bubbleman 2020](https://drive.google.com/file/d/16feo6vSOBlmiT_c8WT4Ata2FWyJzwfpE/view?usp=sharing)
-![](https://imgur.com/gallery/3ffS58P)
+# [Bubbleman 2020+Followpoints](https://drive.google.com/file/d/16feo6vSOBlmiT_c8WT4Ata2FWyJzwfpE/view?usp=sharing)
+![](https://i.imgur.com/l6IHvGi.jpeg)
 
 # [Arknights K4rimw DT](https://drive.google.com/file/d/1MlcRu8AnEZH4jMx1h2cq_zpco0NwizwM/view?usp=sharing)
 ![](https://imgur.com/gallery/yWGJSGz)
