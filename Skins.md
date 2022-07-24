@@ -2,6 +2,12 @@
 
 Click on the skin name to download.
 
+#[azerino/maliszewski HD](https://drive.google.com/file/d/1evyd-6CxSiFGrxtkZdoMeZP0n113PXYv/view?usp=sharing)
+![](https://i.imgur.com/ZmwwvtV.jpeg)
+
+# [Mathi Original](https://drive.google.com/file/d/1JxrAM6Gybe0XKG4uBpUMn0hjAeWqpGs3/view?usp=sharing)
+![](https://i.imgur.com/yEvptXJ.png)
+
 # [Bubbleman 2020+Followpoints](https://drive.google.com/file/d/16feo6vSOBlmiT_c8WT4Ata2FWyJzwfpE/view?usp=sharing)
 ![](https://i.imgur.com/l6IHvGi.jpeg)
 
