@@ -15,19 +15,19 @@ Updated 06/12/2022
 ![](https://i.imgur.com/X1ktTfY.jpg)
 
 [- Shimon](https://drive.google.com/file/d/1z1lIaS9dKLE3WOeM4iahUNz5RrwOETW4/view?usp=share_link)
-![]()
+![](https://i.imgur.com/U8v6oKG.jpg)
 
 [Reused (red)](https://drive.google.com/file/d/1MPHCT9Z2b7n7RAY_OUFvS7qe9PM5dUuz/view?usp=share_link)
 ![](https://i.imgur.com/TUYgNhf.jpg)
 
 [Bartek22830](https://drive.google.com/file/d/1gGYzx8Lb4wfe827G-cLugmDRTL1Y5mxv/view?usp=share_link)
-![]()
+![](https://i.imgur.com/ZbscFx3.jpg)
 
 [azerino/maliszewski](https://drive.google.com/file/d/1evyd-6CxSiFGrxtkZdoMeZP0n113PXYv/view?usp=sharing)
 ![](https://i.imgur.com/ZmwwvtV.jpeg)
 
 [mathi](https://drive.google.com/file/d/1JxrAM6Gybe0XKG4uBpUMn0hjAeWqpGs3/view?usp=sharing)
-![](https://i.imgur.com/yEvptXJ.png)
+![](https://i.imgur.com/guGvA8B.jpg)
 
 [bubbleman](https://drive.google.com/file/d/16feo6vSOBlmiT_c8WT4Ata2FWyJzwfpE/view?usp=sharing)
 ![](https://i.imgur.com/l6IHvGi.jpeg)
