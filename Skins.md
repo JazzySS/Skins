@@ -5,22 +5,22 @@ Updated 06/12/2022
 [Arknights K4rimw](https://drive.google.com/file/d/1MlcRu8AnEZH4jMx1h2cq_zpco0NwizwM/view?usp=sharing)
 ![](https://i.imgur.com/neUUXY9.jpeg)
 
-[- essaazerino]()
+[- essaazerino](https://drive.google.com/file/d/1RuNKPehZ8GLQ1JXSwNzTVrQUnDELnDfH/view?usp=share_link)
 ![]()
 
-[- dddx15dt]()
+[- dddx15dt](https://drive.google.com/file/d/1eh8IdnHJfdi_bEh7hgh6tUcv2zfKkvAP/view?usp=share_link)
+![](https://ibb.co/G5xgVPG)
+
+[- Minhoca loka](https://drive.google.com/file/d/1mnfin2E_DobMQuTAHOghfTikheAesI3C/view?usp=share_link)
 ![]()
 
-[- Minhoca loka]()
+[- Shimon](https://drive.google.com/file/d/1z1lIaS9dKLE3WOeM4iahUNz5RrwOETW4/view?usp=share_link)
 ![]()
 
-[- Shimon]()
+[Reused (red)](https://drive.google.com/file/d/1MPHCT9Z2b7n7RAY_OUFvS7qe9PM5dUuz/view?usp=share_link)
 ![]()
 
-[Reused (red)]()
-![]()
-
-[Bartek22830]()
+[Bartek22830](https://drive.google.com/file/d/1gGYzx8Lb4wfe827G-cLugmDRTL1Y5mxv/view?usp=share_link)
 ![]()
 
 [azerino/maliszewski](https://drive.google.com/file/d/1evyd-6CxSiFGrxtkZdoMeZP0n113PXYv/view?usp=sharing)
