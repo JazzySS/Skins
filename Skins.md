@@ -9,7 +9,7 @@ Updated 06/12/2022
 ![]()
 
 [- dddx15dt](https://drive.google.com/file/d/1eh8IdnHJfdi_bEh7hgh6tUcv2zfKkvAP/view?usp=share_link)
-![](https://ibb.co/G5xgVPG)
+![](https://i.imgur.com/W9LrRJE.jpg)
 
 [- Minhoca loka](https://drive.google.com/file/d/1mnfin2E_DobMQuTAHOghfTikheAesI3C/view?usp=share_link)
 ![]()
