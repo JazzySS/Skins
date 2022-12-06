@@ -26,13 +26,13 @@ Updated 06/12/2022
 [azerino/maliszewski](https://drive.google.com/file/d/1evyd-6CxSiFGrxtkZdoMeZP0n113PXYv/view?usp=sharing)
 ![](https://i.imgur.com/ZmwwvtV.jpeg)
 
-[Mathi](https://drive.google.com/file/d/1JxrAM6Gybe0XKG4uBpUMn0hjAeWqpGs3/view?usp=sharing)
+[mathi](https://drive.google.com/file/d/1JxrAM6Gybe0XKG4uBpUMn0hjAeWqpGs3/view?usp=sharing)
 ![](https://i.imgur.com/yEvptXJ.png)
 
-[Bubbleman](https://drive.google.com/file/d/16feo6vSOBlmiT_c8WT4Ata2FWyJzwfpE/view?usp=sharing)
+[bubbleman](https://drive.google.com/file/d/16feo6vSOBlmiT_c8WT4Ata2FWyJzwfpE/view?usp=sharing)
 ![](https://i.imgur.com/l6IHvGi.jpeg)
 
-[MonkoEdit Rektygon](https://drive.google.com/file/d/15ZbLaz2L78g5HiFfx1lq_2Pzbp_CkHha/view?usp=sharing)
+[Rektygon&monko](https://drive.google.com/file/d/15ZbLaz2L78g5HiFfx1lq_2Pzbp_CkHha/view?usp=sharing)
 ![](https://i.imgur.com/pewXA1Y.jpeg)
 
 [boop](https://drive.google.com/file/d/1D7yMcSafqcfDTDWiTFLoe5sRCwMm3bBT/view?usp=sharing)
@@ -47,7 +47,7 @@ Updated 06/12/2022
 [mrekk](https://drive.google.com/file/d/1UOW7NN7TWV8CxHpp_KKrKVHyq3WDJ0HN/view?usp=sharing)
 ![](https://i.imgur.com/RSjUQmY.png)
 
-[Mathi+Cookiezi](https://drive.google.com/open?id=1MdyeYkuCrGP3wCPKw9JRLuZZ12No2eEa)
+[mathi+Cookiezi](https://drive.google.com/open?id=1MdyeYkuCrGP3wCPKw9JRLuZZ12No2eEa)
 ![](https://i.imgur.com/ksT45FH.png)
 
 [lines](https://drive.google.com/open?id=1izYCwEN44N-3nw_XBV5j0WYpHR3ujqVJ)
