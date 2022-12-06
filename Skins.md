@@ -6,19 +6,19 @@ Updated 06/12/2022
 ![](https://i.imgur.com/neUUXY9.jpeg)
 
 [- essaazerino](https://drive.google.com/file/d/1RuNKPehZ8GLQ1JXSwNzTVrQUnDELnDfH/view?usp=share_link)
-![]()
+![](https://i.imgur.com/qEyL6gD.jpg)
 
 [- dddx15dt](https://drive.google.com/file/d/1eh8IdnHJfdi_bEh7hgh6tUcv2zfKkvAP/view?usp=share_link)
 ![](https://i.imgur.com/W9LrRJE.jpg)
 
 [- Minhoca loka](https://drive.google.com/file/d/1mnfin2E_DobMQuTAHOghfTikheAesI3C/view?usp=share_link)
-![]()
+![](https://i.imgur.com/X1ktTfY.jpg)
 
 [- Shimon](https://drive.google.com/file/d/1z1lIaS9dKLE3WOeM4iahUNz5RrwOETW4/view?usp=share_link)
 ![]()
 
 [Reused (red)](https://drive.google.com/file/d/1MPHCT9Z2b7n7RAY_OUFvS7qe9PM5dUuz/view?usp=share_link)
-![]()
+![](https://i.imgur.com/TUYgNhf.jpg)
 
 [Bartek22830](https://drive.google.com/file/d/1gGYzx8Lb4wfe827G-cLugmDRTL1Y5mxv/view?usp=share_link)
 ![]()
